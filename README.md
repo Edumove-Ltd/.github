@@ -1,1 +1,1 @@
-# Hi there 👋 We are Edumove Ltd.
+# Hi there 👋 We are [Ki-Journey](www.ki-journey.com).
