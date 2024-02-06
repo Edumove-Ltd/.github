@@ -1,1 +1,1 @@
-# Hi there 👋 We are [Ki-Journey](www.ki-journey.com).
+# Hi there 👋 We are [Ki-Journey](https://www.ki-journey.com)!
